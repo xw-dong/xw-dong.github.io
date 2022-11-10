@@ -1,1 +1,1 @@
-Click: [xinweidong.github.io](https://xinweidong.github.io/)
+Click: [www.xinweidong.com](www.xinweidong.com)
